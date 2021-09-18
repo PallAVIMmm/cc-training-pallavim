@@ -1,1 +1,0 @@
-# cc-training-pallavim
